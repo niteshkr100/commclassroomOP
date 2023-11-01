@@ -2,4 +2,4 @@
 
 - Kunal Kushwaha says that this community is amazing.
 - More power to kunal. love the work which your are doing for the community.
-- Nitesh is the new member of this community!!
+- Nitesh is the new member of this op community!!
